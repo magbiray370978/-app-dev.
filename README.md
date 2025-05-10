@@ -12,7 +12,7 @@
 
 ### Favorite episode in the series:
 - The Boy in the Iceberg
-- Winter Solstice
+- Winter Solstice 
 - The Waterbending Scroll
 
 ### Why I Love It:
